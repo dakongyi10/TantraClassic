@@ -19,10 +19,4 @@ Informations：
 2>base on K2,lever limit 70<br>
 3>Open all K2 maps<br>
 <br>
-<br>
-contract qq gronp no.    1064656652
-<br>
-<br>
-client:
-链接：https://pan.baidu.com/s/1XN6KCpzYK7f7fGdrp3wIeQ 
-提取码：g8kz
+
