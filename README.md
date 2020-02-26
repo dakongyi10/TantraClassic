@@ -19,7 +19,7 @@ Informations：<br>
 3>Open all K2 maps<br>
 <br>
 <br>
-contarct qq gronp no.    1064656652
+contract qq gronp no.    1064656652
 <br>
 <br>
 client:
