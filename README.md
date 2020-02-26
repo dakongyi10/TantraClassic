@@ -14,7 +14,7 @@
 提取码：g8kz
 <br><br>
 ---------------------------------------------------------------------------------------------------------------
-Informations：
+Informations：<br>
 1>free for all<br>
 2>base on K2,lever limit 70<br>
 3>Open all K2 maps<br>
