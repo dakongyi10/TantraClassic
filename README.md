@@ -9,10 +9,12 @@
 <br><br>
 交流QQ群：1064656652
 <br><br>
-客户端
+客户端<br>
 链接：https://pan.baidu.com/s/1XN6KCpzYK7f7fGdrp3wIeQ 
-提取码：g8kz
-<br><br>
+提取码：g8kz  <br>
+或q群内下载
+<br>
+<br>
 
 Informations：<br>
 1>free for all<br>
