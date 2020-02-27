@@ -14,9 +14,24 @@
 提取码：g8kz  <br>
 或q群内下载
 <br>
-<iframe height=498 width=510 src='http://player.youku.com/embed/XNDU2MzI0OTQ3Mg==' frameborder=0 'allowfullscreen'></iframe>
+视频
 <br>
+https://www.bilibili.com/video/av91951345/<br>
+http://player.youku.com/embed/XNDU2MzI0OTQ3Mg==<br>
+<br>
+<br>
+tips<br>
+1、主神守卫掉落包包去香巴拉女祭司兑换天门门票<br>
+2、曼陀罗吉卡里处有100回蓝速度腰带<br>
+3、曼陀罗卡兰处有经验符咒<br>
+4、曼陀罗新手村有经验加成<br>
+5、流放任务奖励首饰最低2级<br>
 
+
+<br>
+<br>
+<br>
+<br>
 Informations：<br>
 1>free for all<br>
 2>base on K2,lever limit 70<br>
