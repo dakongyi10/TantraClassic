@@ -10,8 +10,8 @@
 交流QQ群：1064656652
 <br><br>
 客户端<br>
-链接：https://pan.baidu.com/s/1XN6KCpzYK7f7fGdrp3wIeQ 
-提取码：g8kz  <br>
+链接：https://pan.baidu.com/s/1hR-QdItgKNyVzMpoJYb4_Q <br>
+提取码：8ae6  <br>
 或q群内下载
 <br>
 视频
