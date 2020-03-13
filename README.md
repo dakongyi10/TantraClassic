@@ -1,8 +1,8 @@
 交流QQ群：1064656652
 <br><br>
 客户端<br>
-链接：https://pan.baidu.com/s/1hR-QdItgKNyVzMpoJYb4_Q <br>
-提取码：8ae6  <br>
+链接：https://pan.baidu.com/s/1qbZNxXMRh8tuRSUDXDkoEg   <br>
+提取码：1fi2  <br>
 或q群内下载
 <br>
 视频
